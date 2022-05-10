@@ -37,4 +37,4 @@
 
 - 詳しい情報はこちらから:+1:→[拓殖大学](http://www.takushoku-u.ac.jp "Takushoku University")
 - 最後までありがとうございました
-
+　
