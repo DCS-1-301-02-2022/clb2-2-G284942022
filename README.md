@@ -34,6 +34,7 @@
 ![Dep. of Comp. Sci.](https://feng.takushoku-u.ac.jp/albums/abm00004330.jpg "情報工学科")
 
 - 詳しい情報はこちらから→[拓殖大学](http://www.takushoku-u.ac.jp "Takushoku University")
+
 - 最後までありがとうございました
 :+1:
 　
